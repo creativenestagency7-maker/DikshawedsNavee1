@@ -1,2 +1,2 @@
-# DikshawedsNavee1
+# DikshawedsNaveen
 Wedding invitation 
